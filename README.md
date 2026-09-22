@@ -4,3 +4,6 @@
 </p>
 
 </p>
+
+
+$${\color{#2787F5}\textsf{ no this isn't "whitewashing" spoke, this is a lil fun skit, ok?}}$$
